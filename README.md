@@ -1,1 +1,1 @@
-# Vlad5655.schoolwebsite.io
+# Vlad5655.schoolwebsite.com
